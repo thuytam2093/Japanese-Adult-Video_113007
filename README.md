@@ -1,2 +1,19 @@
-# Japanese-Adult-Video_113007
-Jav Online Free, Free JAV, Asian Sex Videos,JAV Stream, Free JAV, Jav Online Free, Jav Watch, Jav HD, Porn Japan, JAV Video, Jav Porn Site,Free JAV HD and Japanese Adult Video
+
+黑料区免费在线观看-独家爆料免费吃瓜导航页-媚娘福导福航在线观看
+==
+分类: 吃瓜网,吃瓜会员,正能量,情感励志,导航
+瓜棚吃瓜最新地址发布：伊园甸2024永久免费观看
+-
+
+[日本mv无砖码免费入口(免翻墙)](https://asiayiqu.icu)
+
+
+[亚洲一区2区备用地址](https://asiayiqu2.icu)
+
+
+[最新地址发布(免翻墙)](https://github.com/thuy4774/new_1/blob/main/README.md)
+
+
+重要提醒收藏本页面，避免迷路！
+‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
+:近期部分国产浏览器屏蔽网址，推荐使用Chrome谷歌浏览器、Edge浏览器访问。
